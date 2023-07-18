@@ -16,5 +16,4 @@ Whether you're seeking to advance your career, improve your relationships, or si
 
 By the end of the book, you'll have a comprehensive understanding of how to see the big picture and find your purpose, and be equipped with the tools and techniques you need to create a life that's rich, fulfilling, and meaningful.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

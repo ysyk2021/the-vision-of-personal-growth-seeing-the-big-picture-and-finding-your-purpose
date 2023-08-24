@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, "The Vision of Personal Growth: Seeing the Big Picture and Finding Your Purpose", we have explored various ways to identify and achieve personal growth. Here are some key points to remember:
 

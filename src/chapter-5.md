@@ -1,5 +1,3 @@
-Chapter 4: Goal Setting
-=======================
 
 Setting goals is a crucial step in personal growth. Goals give us direction, motivation, and a sense of purpose. In this chapter, we'll explore techniques for setting goals that align with your vision, creating action plans to achieve those goals, and monitoring progress along the way.
 

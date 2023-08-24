@@ -1,5 +1,3 @@
-Seeking Mentorship and Guidance
-==========================================
 
 In this chapter, we will explore the importance of seeking mentorship and guidance on your personal growth journey. Having someone more experienced and knowledgeable to guide you can provide valuable insights, help you navigate challenges, and accelerate your progress towards finding your purpose.
 

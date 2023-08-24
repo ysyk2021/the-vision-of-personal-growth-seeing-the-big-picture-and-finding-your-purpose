@@ -1,5 +1,3 @@
-Chapter 7: Support Systems
-==========================
 
 Personal growth can be a challenging journey, but it's not one that you have to take alone. Building support systems is crucial for achieving your goals and staying motivated along the way. In this chapter, we'll explore how to build effective support systems for personal growth.
 

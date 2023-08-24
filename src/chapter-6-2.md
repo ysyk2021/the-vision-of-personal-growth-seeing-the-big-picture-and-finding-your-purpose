@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs
-======================================
 
 In this chapter, we will explore the concept of limiting beliefs and how they can hinder personal growth. We will discuss effective strategies to identify and overcome these beliefs, allowing individuals to unlock their full potential and find their purpose in life.
 

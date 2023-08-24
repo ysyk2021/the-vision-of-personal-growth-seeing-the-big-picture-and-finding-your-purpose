@@ -1,5 +1,3 @@
-Chapter 5: Mindset Shifts
-=========================
 
 Personal growth often relies on mindset shifts - changes in our beliefs, attitudes, and perspectives that help us achieve our goals and overcome obstacles. In this chapter, we'll explore some key mindset shifts that can facilitate personal growth.
 

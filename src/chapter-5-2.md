@@ -1,5 +1,3 @@
-Creating Action Plans to Achieve Those Goals
-=======================================================
 
 In this chapter, we will delve into the practical aspects of turning those goals into reality. We will learn how to create effective action plans that will guide us towards achieving our aspirations.
 

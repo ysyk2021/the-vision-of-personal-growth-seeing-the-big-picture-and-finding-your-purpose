@@ -1,5 +1,4 @@
-Chapter: Purpose of the Book
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the book "The Vision of Personal Growth: Seeing the Big Picture and Finding Your Purpose," this chapter delves into the purpose behind the book's creation. By understanding the objectives and intentions of the book, readers can grasp its significance and align their expectations accordingly.
 

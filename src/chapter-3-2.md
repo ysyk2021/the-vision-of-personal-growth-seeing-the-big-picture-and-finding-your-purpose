@@ -1,5 +1,4 @@
-Chapter: The Costs of Not Having a Clear Vision for Personal Growth
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the book "The Vision of Personal Growth: Seeing the Big Picture and Finding Your Purpose," this chapter delves into the costs and consequences that individuals may face when they lack a clear vision for personal growth. By understanding these costs, readers can grasp the importance of having a clear vision and be motivated to embark on their personal growth journey with purpose and intention.
 
